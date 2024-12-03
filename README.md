@@ -21,4 +21,3 @@ Verizon 2021 Data Breach Investigations ReportLinks to an external site.
 Complete the following worksheet as you navigate through these papers:
 
 Security 101 Challenge WorksheetLinks to an external site.
-note
